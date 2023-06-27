@@ -7,4 +7,4 @@
 - confirm tx
 - done!
 
-# My Discord: xessos [LegendSky]
+# My Discord: sexxos [LegendSky]
